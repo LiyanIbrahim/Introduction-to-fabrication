@@ -13,5 +13,6 @@ Preplanning:
 
 
 ![IMG_1780](https://github.com/LiyanIbrahim/Introduction-to-fabrication/assets/51895025/ac6e7557-e6c8-47b3-8bba-b0bccaf63ac6)
-![IMG_1791](https://github.com/LiyanIbrahim/Introduction-to-fabrication/assets/51895025/5e0ea731-52bd-4fe8-989a-605cf89ab906)
 ![IMG_1785](https://github.com/LiyanIbrahim/Introduction-to-fabrication/assets/51895025/69e55b28-319f-4c57-ace6-d7edbc3d2d57)
+![IMG_1791](https://github.com/LiyanIbrahim/Introduction-to-fabrication/assets/51895025/5e0ea731-52bd-4fe8-989a-605cf89ab906)
+
