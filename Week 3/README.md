@@ -3,3 +3,6 @@ For this week's assignment, I was really interested in working with fabrics and 
 Execussion: </br>
 I initially started small by printing my design on cut up fabric that I bought to see how it would look. There was no fabric setting on the paper so Toby (shop staff) and I kind of made an informed guess of what he thought could work. I ended up printing maybe 6 of the small designs of different sizes on cut up fabric. For my large design, I printed it on a t-shirt but mainly because I didn’t know what else to do. I really liked the idea of getting a canvas and sticking my small designs on it repetitively and overlapping and I think I might cut up the large t-shirt design as my base.  </br>
 
+![IMG_2122](https://github.com/LiyanIbrahim/Introduction-to-fabrication/assets/51895025/d4a29780-69a0-406f-a42a-8c6d28533efe)
+![IMG_2121](https://github.com/LiyanIbrahim/Introduction-to-fabrication/assets/51895025/70e94655-b0dc-4779-9682-916fcdc33676)
+![IMG_2120](https://github.com/LiyanIbrahim/Introduction-to-fabrication/assets/51895025/5af73df9-d503-4bcb-827c-5679473bacb5)
