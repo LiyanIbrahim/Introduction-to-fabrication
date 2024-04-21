@@ -20,7 +20,7 @@ Before the Nakba in 1948, Palestine was world-famous for growing succulent water
 Coaster 4: </br> 
 “There are many stories in our life; in Palestine, the narrative is in constant confrontation with settler-colonialism and apartheid,” 
 “And art is in that battle.”
-</br> </br> 
+
 ![IMG_2386](https://github.com/LiyanIbrahim/Introduction-to-fabrication/assets/51895025/45a18f80-6557-48d4-8c07-af2637d79001)
 ![IMG_2385](https://github.com/LiyanIbrahim/Introduction-to-fabrication/assets/51895025/4fc03352-8903-4d6b-b679-9cfee5a8a5b5)
 ![IMG_2382](https://github.com/LiyanIbrahim/Introduction-to-fabrication/assets/51895025/1b3041a8-9d77-4421-a4a3-f8b06aa327c4)
